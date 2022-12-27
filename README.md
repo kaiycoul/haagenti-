@@ -1,2 +1,4 @@
 # haagenti-
 O quadragésimo oitavo espírito é Haagenti, Hagenti, Hegenit, ou Hagenith. É um presidente aparecendo na forma de búfalo alado e tomando forma humana ao comando do Magista. Sua função é fazer homens sábios, e instrui-loo
+O quadragésimo oitavo espírito é Haagenti, Hagenti, Hegenit, ou Hagenith. É um presidente aparecendo na forma de búfalo alado e tomando forma humana ao comando do Magista. Sua função é fazer homens sábios, e instrui-los em coisas sobre os mares e oceanos; também Transmuta todos os metais ordinários em ouro e o vinho em água e vice versa. Governa 33 legiões de espíritos.
+O quadragésimo oitavo espírito é Haagenti, Hagenti, Hegenit, ou Hagenith. É um presidente aparecendo na forma de búfalo alado e tomando forma humana ao comando do Magista. Sua função é fazer homens sábios, e instrui-los em coisas sobre os mares e oceanos; também Transmuta todos os metais ordinários em ouro e o vinho em água e vice ver
